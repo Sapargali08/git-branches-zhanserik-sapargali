@@ -1,0 +1,1 @@
+My name is Zhanserik Sapargali. I am studying IT. I like programming and building web projects. My hobby is learning new technologies.
